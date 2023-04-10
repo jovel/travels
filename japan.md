@@ -97,4 +97,4 @@ Has an Andersen bakery in the train station
 |Meiji Temple|Soba|Poke Manhole|Yoyogi Park|Egg sandwich|
 |Temple fortune|Shabu Shabu|Free|omurice|Gashapon|
 |Crane game|Hachiko|Sensoji temple|Udon|Cake/Bakery|
-|Suntory drink|Tonkatsu|Okonomiyaki|Disneland|Craft beer|
+|Suntory drink|Tonkatsu|Okonomiyaki|Disneyland|Craft beer|
