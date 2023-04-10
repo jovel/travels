@@ -1,11 +1,14 @@
 ## Guide to Tokyo
 
-Suggestions based on my Tokyo travels. tl;dr Just wandering around Tokyo, you'll find a lot of venues to explore activities that you're interested or try new ones. My main recommendation is to visit the various areas of Tokyo (e.g. Ueno, Asakusa, Shibuya, Ebisu, etc) and just explore. In the following guide, I'll give one or two pointers as way point for some areas to start your travels. Hope you enjoy!
+Suggestions based on my Tokyo travels. 
+
+**tl;dr** Wandering around the various Tokyo district with a train card is the best way to enjoy Tokyo. My goal in the following guide to give a couple of waypoints on each district to get your travels started. Hope you enjoy!
 
 ### Akihabra
 
-Electric town
-Ramen
+TODO
+* Electric town guide
+* Ramen
 
 ### Asakusa
 
@@ -34,7 +37,7 @@ If possible, I recommend visiting this area on Sunday - it's extra busy but you 
 
 ### Ikebukuro
 
-Sunshine City but warning the other side of the train station is th red light district
+Visit Sunshine City to see the biggest Pokemon Store but warning the other side of the Ikebukuro train station is the red light district so make sure to follow the signs for Sunshine City
 
 ### Shinjuku
 
@@ -46,8 +49,7 @@ I recommend visiting [Ben Fiddich](https://goo.gl/maps/whq99DmrYFbt4YXi7). It's 
 
 Also known as the place to go to shop. This is the home of [Hachiko](https://goo.gl/maps/3bcNWAH6G1KMCgoZA), the often used in movies Shibuya Scramble (it's right in front of Hachiko's statue), and the [iconic 109 shopping mall](https://goo.gl/maps/RJ5LUXDh2NicGpDK7). Beware, the Shibuya train station is its own city and it's very easy to get lost inside. Sometimes it's better to just exit and find what you're looking from the outside in. It's the same with the Tokyo Station.
 
-Shibuya gets really busy but unfortunately there's a lot of good food places here:
-* TODO
+Shibuya gets really busy but unfortunately there's a lot of good food places here: <TODO>
 
 
 ### Shimokitazawa
