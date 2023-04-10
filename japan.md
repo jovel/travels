@@ -2,10 +2,39 @@
 
 Suggestions based on my Tokyo travels. tl;dr Just wandering around Tokyo, you'll find a lot of venues to explore activities that you're interested or try new ones. My main recommendation is to visit the various areas of Tokyo (e.g. Ueno, Asakusa, Shibuya, Ebisu, etc) and just explore. In the following guide, I'll give one or two pointers as way point for some areas to start your travels. Hope you enjoy!
 
-### Asa
+### Asakusa
+
+Asakusa is the home of [Sensoji](https://goo.gl/maps/HNzukuJTArDtzVWn8), the oldest temple in Tokyo. Highly recommend visiting this area and getting your fortune from the fortune sticks
+Also, entrance of Sensoji and the surrounding shopping arcades have a lot of food stops - sample of what can be found in the area is [covered by this youtube video](https://www.youtube.com/watch?v=oArBcmhqtqY)
+Asakusa is also a much older area and has some of the Old Japan feels
 
 ### Ginza
 
+This is where rich people shop and also the home of all the brand stores. But I do recommend visiting [Mitsukoshi Shopping](https://goo.gl/maps/5w2fc99iXXmCJyXN9)
+* Ginza is the fancy shopping district of Japan
+* I recommend visiting the bottom floors of Mitsukoshi to check out the most extensive dessert shops available in one area
+* This is actually true for all shopping malls, the bottom two floors are a great way to see all the dessert and food locations (it’s an experience that’s better than food courts)
+
+### Shinjuku
+
+Shinjuku is both a city and ward - basically to say this area is huge.
+
+I recommend visiting [Ben Fiddich](https://goo.gl/maps/whq99DmrYFbt4YXi7). It's an amazing cocktail bar and the staff and owner (and also the main bartender) all speak English. They're rank as one of the top 25 cocktail bar in the world but what makes Ben Fiddich unique is that the owner also owns a farm where he develops all his liquors and grows his own ingredients. I also recommend getting a shot of the 1916 Spanish Chartreuse
+
+### Shibuya
+
+Also known as the place to go to shop. This is the home of [Hachiko](https://goo.gl/maps/3bcNWAH6G1KMCgoZA), the often used in movies Shibuya Scramble (it's right in front of Hachiko's statue), and the [iconic 109 shopping mall](https://goo.gl/maps/RJ5LUXDh2NicGpDK7). Beware, the Shibuya train station is its own city and it's very easy to get lost inside. Sometimes it's better to just exit and find what you're looking from the outside in. It's the same with the Tokyo Station.
+
+Shibuya gets really busy but unfortunately there's a lot of good food places here
+
+
+### Harajuku/Omoetesando
+
+I usually tell people to visit [B Side Label](https://goo.gl/maps/5WMPh5btPN1CmHdD7) since it's a good place to find high quality stickers that are great souvenirs that aren't as tacky as your usual souvenirs. It's a good homing location to explore the Harajuku and Omoetesando area without hopefully getting stuck going down Takeshita street - it's where all the teens and tourist hang out. But if you do get stuck in Takeshita Street, the thing to do is to eat crepe - especially from Marion Crepe. There's also a McDonalds nearby and I only mention McDonalds since they have unique dishes that's only in Japan that rotates often.
+
+This area is also where the [Meiji Temple](https://goo.gl/maps/E2tfEugPdy7PwYLP6) is located - highly recommend entering this temple area as it is an experience. Sounds like you're also visiting at a good time to experience the Empress's Garden.
+
+If possible, I recommend visiting this area on Sunday - it's extra busy but you can visit Yoyogi Park which is right next to Meiji Temple and see how Tokyo spends its weekend. There's also a lot of street performances in the park and you may catch the [Rockability group](https://soranews24.com/2014/07/08/a-brief-history-of-japanese-rockabilly-not-just-for-your-grandparents%E3%80%90j-tunes%E3%80%91/) that hangout by the entrance of Yoyogi park
 
 ### Side Adventures
 
