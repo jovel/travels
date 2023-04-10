@@ -8,6 +8,8 @@ Asakusa is the home of [Sensoji](https://goo.gl/maps/HNzukuJTArDtzVWn8), the old
 Also, entrance of Sensoji and the surrounding shopping arcades have a lot of food stops - sample of what can be found in the area is [covered by this youtube video](https://www.youtube.com/watch?v=oArBcmhqtqY)
 Asakusa is also a much older area and has some of the Old Japan feels
 
+TODO: Running station and running along the Sumida River
+
 ### Ginza
 
 This is where rich people shop and also the home of all the brand stores. But I do recommend visiting [Mitsukoshi Shopping](https://goo.gl/maps/5w2fc99iXXmCJyXN9)
@@ -43,3 +45,24 @@ If possible, I recommend visiting this area on Sunday - it's extra busy but you 
 |Stamp rally| Every train stop has its own stamp and sometimes its own mascot. You can collect all the stamps of given train line, [e.g. JR Yamanote](https://www.spoon-tamago.com/riding-the-yamanote-line-railway-stamp-rally/) |
 |Postal boxes| Most postal boxes in Japan are a standard red box but some [have unique designs](https://matcha-jp.com/en/3683) and you can usually find a guide of where to find them in a post office. Pro tip: there's always an ATM in a post offce |
 | Manholes | Each city or area have unique manhole covers. For example, you can track down all the different [pokemon manhole covers](https://voyapon.com/pokefuta-pokemon-manholes-japan/) |
+|Disneyland| Tokyo Disney has two parks - Tokyo Disneyland and Tokyo Disney Sea. I recommend going to Tokyo Disney Sea and collecting all the popcorn flavors. |
+|Tokyo Blackout| Using all your coins for the day (donating to temples does not count) |
+
+### Pro Tips
+
+|||
+|---|---|
+|Train cards| Once you arrive in Japan either get a Suica or Pasmo for faster train travels|
+|Getting yen| Japan is still a cash-based society so either recommend buying yen in the US, buying yen in the airport (not the currency exchange one), or withdrawing yen from an ATM. I'd recommend going to a Japanese bank but I think they require you have an account |
+|JR Rail Pass| Can only be purchased outside of Japan. May not be worth it unless you know you'll be using the shinkansen a lot. JR trains aren't all shinkansen even though they travel long distance|
+|||
+
+### Tokyo Bingo
+
+|B|I|N|G|O|
+|---|---|---|---|---|
+|Takoyaki|Crepe|Mochi|Sushi|Egg Pudding|
+|Meiji Temple|Soba|Poke Manhole|Yoyogi Park|Egg sandwich|
+|Temple fortune|Shabu Shabu|Free|omurice|Gashapon|
+|Crane game|Tokyo Tower|Sensoji temple|Udon|Ghibli store|
+|Suntory drink|Tonkatsu|Okonomiyaki|Disneland|Craft beer|
