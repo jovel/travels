@@ -90,6 +90,7 @@ Has an Andersen bakery in the train station
 |Getting yen| Japan is still a cash-based society so either recommend buying yen in the US, buying yen in the airport (not the currency exchange one), or withdrawing yen from an ATM. I'd recommend going to a Japanese bank but I think they require you have an account |
 |JR Rail Pass| Can only be purchased outside of Japan. May not be worth it unless you know you'll be using the shinkansen a lot. JR trains aren't all shinkansen even though they travel long distance|
 |Bakery chain| Lots of bakery chain but Andersen is still super good|
+|Conbini| Conbini's are your friend and the source of egg sandwiches. The top three are 7-11, Lawson, and Family Mart - but 7-11 are more popular with natives and have the best egg pudding|  
 
 ### Tokyo Bingo
 
