@@ -124,4 +124,4 @@ There's a park here and a shrine in the middle of the lake. Has an Andersen bake
 |Meiji Temple|Soba|Senbei|Yoyogi Park|Egg sandwich|
 |Yakitori|Shabu Shabu|Free|Omurice|Gashapon|
 |Crane game|Hachiko|Sensoji temple|Udon|Cake/Bakery|
-|Suntory drink|Tonkatsu|Okonomiyaki|Disneyland|Craft beer|
+|Suntory drink|Tonkatsu|Okonomiyaki|Disneyland|Sake|
