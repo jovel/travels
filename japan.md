@@ -37,6 +37,11 @@ This area is also where the [Meiji Temple](https://goo.gl/maps/E2tfEugPdy7PwYLP6
 
 If possible, I recommend visiting this area on Sunday - it's extra busy but you can visit Yoyogi Park which is right next to Meiji Temple and see how Tokyo spends its weekend. There's also a lot of street performances in the park and you may catch the [Rockability group](https://soranews24.com/2014/07/08/a-brief-history-of-japanese-rockabilly-not-just-for-your-grandparents%E3%80%90j-tunes%E3%80%91/) that hangout by the entrance of Yoyogi park
 
+**Notable stops**
+* [The Real McCoy's](https://goo.gl/maps/r73MS7Ue7EGco2GF7)
+* [Snow Peak](https://goo.gl/maps/JLc9qTmgx9RbW15QA)
+* [Tokyo Tarako Spaghetti](https://goo.gl/maps/3efT97DfrxxsK6RR6)
+
 ### Ikebukuro
 
 Visit Sunshine City to see the biggest Pokemon Store but warning the other side of the Ikebukuro train station is the red light district so make sure to follow the signs for Sunshine City
