@@ -114,7 +114,7 @@ There's a park here and a shrine in the middle of the lake. Has an Andersen bake
 |B|I|N|G|O|
 |---|---|---|---|---|
 |Takoyaki|Crepe|Tokyo Tower|Sushi|Egg Pudding|
-|Meiji Temple|Soba|Train stamp|Yoyogi Park|Egg sandwich|
-|Temple fortune|Shabu Shabu|Free|omurice|Gashapon|
+|Meiji Temple|Soba|Senbei|Yoyogi Park|Egg sandwich|
+|Yakitori|Shabu Shabu|Free|Omurice|Gashapon|
 |Crane game|Hachiko|Sensoji temple|Udon|Cake/Bakery|
 |Suntory drink|Tonkatsu|Okonomiyaki|Disneyland|Craft beer|
