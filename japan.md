@@ -74,12 +74,14 @@ For music lovers and vintage, used clothing
 **Notable stops**
 * [Shelter](https://goo.gl/maps/46La8d3AFzxGc16L8) - music venue referenced in _Bocchi the Rock!_  
   
-### Tokyo Station
+### Marunouchi/Tokyo Station
 
-Another train station that's really easy to get lost in but has a lot of restaurants and best of all dedicated snack stores - Japan cookies and candies are next level.
+Another train station that's really easy to get lost in but has a lot of restaurants and best of all dedicated snack stores - Japan cookies and candies are next level. Nearby is the Imperial Palace - there's limited tours inside but there's also a running path that goes around the palace grounds
 
 **Notable stops**
-* Stationary: Traveler's Company
+* Stationary: [Traveler's Company](https://goo.gl/maps/LJGsLZ2FSginVoxx5)
+* [Tonkatsu Suzuki](https://goo.gl/maps/3edrBTJQVFHLZjf98)
+* [Tora-ya](https://goo.gl/maps/jnaBQxaN7SSyEC9W6) - traditional dessert store + tea
 
 ### Ueno
 
