@@ -5,17 +5,17 @@ Travel Guides
 
 Future guides
 * Aomori
- * Apple pie 
+  * Apple pie 
 * Hakodate
- * Seafood 
+  * Seafood 
 * Hakone
- * Onsen 
+  * Onsen 
 * Kobe
- * Kobe in Kobe is peak experience 
+  * Kobe in Kobe is peak experience 
 * Kyoto
- * I really don't recommend
+  * I really don't recommend
 * Osaka
- * Food central 
+  * Food central 
 * Sapporo
- * Seafood and ice cream
+  * Seafood and ice cream
 
