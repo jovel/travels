@@ -92,7 +92,8 @@ Another train station that's really easy to get lost in but has a lot of restaur
 
 There's a park here and a shrine in the middle of the lake. Has an Andersen bakery in the train station
 
-
+**Notable stops**
+* Ueno Zoo
 
 ### Side Adventures
 
@@ -103,7 +104,7 @@ There's a park here and a shrine in the middle of the lake. Has an Andersen bake
 | Manholes | Each city or area have unique manhole covers. For example, you can track down all the different [pokemon manhole covers](https://voyapon.com/pokefuta-pokemon-manholes-japan/) |
 |Disneyland| Tokyo Disney has two parks - Tokyo Disneyland and Tokyo Disney Sea. I recommend going to Tokyo Disney Sea and collecting all the popcorn flavors. |
 |Tokyo Blackout| Using all your coins for the day (donating to temples does not count) |
-|||
+|Don Quijote| It's a mega discount store chain and can be found in nearly all major cities or districts of Tokyo. Look for the penguin. It's an experience going to one of the Don Quijote store; technically you can use it to get essentials and souvenirs but it's pretty overwhelming so you probably would want to go to a convini, Uniqlo, or Daiso for actual essentials|
 
 ### Pro Tips
 
