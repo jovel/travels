@@ -20,6 +20,7 @@ Asakusa is also a much older area and has some of the old Japan feels.
 **Notable stops**
 * [Our Our Running station ](https://goo.gl/maps/ZfbgqTSA7UoLnAJk8) - cafe where you can rent a locker, go for a run along the Sumida River, and then come back and take shower all in same shop
 * Sample of restaurants to visit are [covered by this youtube video](https://www.youtube.com/watch?v=oArBcmhqtqY)
+* [Pelican Cafe](https://maps.app.goo.gl/7QSQFEXJXokrXQDX9) for really good bread and breakfast
 
 
 ### Ginza
