@@ -30,7 +30,8 @@ Asakusa is also a much older area and has some of the old Japan feels.
 This is where rich people shop and also the home of all the high end brand stores. But I do recommend visiting [Mitsukoshi Shopping Mall](https://goo.gl/maps/5w2fc99iXXmCJyXN9) for the food and dessert stores in their basement floors. The bottom floors of nearly all shopping malls are where a variety of savory and sweet things can be found but Japan snacks are next level and Mitsukoshi has all the best foods.
 
 **Notable stops**
-* Stationary: [Ito-ya](https://goo.gl/maps/6tr9jaaQRNuEoBeC7) - oldest stationery store with 8 stores and an annex in the back
+* Stationary: [Ito-ya](https://goo.gl/maps/6tr9jaaQRNuEoBeC7) - oldest stationery store with 8 floors of stationery goodness and an annex in the back
+* Go to the basement of any of the fancy malls in Ginza for all the desserts
 
 ### Harajuku/Omoetesando
 
@@ -43,8 +44,8 @@ If possible, I recommend visiting this area on Sunday - it's extra busy but you 
 **Notable stops**
 * [The Real McCoy's](https://goo.gl/maps/r73MS7Ue7EGco2GF7) - for really expensive reproduction of military jackets
 * [Snow Peak](https://goo.gl/maps/JLc9qTmgx9RbW15QA)
-* [Tokyo Tarako Spaghetti](https://goo.gl/maps/3efT97DfrxxsK6RR6)
-* [Trattoria Niwa](https://maps.app.goo.gl/3y5m3hFxi9weRzpn6) - highly recommend; Japan's interpretation of italian dishes using season fruits and veggies from Japan
+* [Tokyo Tarako Spaghetti](https://goo.gl/maps/3efT97DfrxxsK6RR6) - so good if you like roe
+* [Trattoria Niwa](https://maps.app.goo.gl/3y5m3hFxi9weRzpn6) - highly recommend; Japan's interpretation of italian dishes using seasonal fruits and veggies from Japan
 
 ### Ikebukuro
 
@@ -57,7 +58,7 @@ Visit Sunshine City to see the biggest Pokemon Store but warning the other side 
 
 ### Shinjuku
 
-Shinjuku is both a city and ward - basically to say this area is huge.
+Shinjuku is both a city and a ward - basically to say this area is huge.
 
 I recommend visiting [Ben Fiddich](https://goo.gl/maps/whq99DmrYFbt4YXi7). It's an amazing cocktail bar and the staff and owner (and also the main bartender) all speak English. They're rank as one of the top 25 cocktail bar in the world but what makes Ben Fiddich unique is that the owner also owns a farm where he develops all his liquors and grows his own ingredients. I also recommend getting a shot of the 1916 Spanish Chartreuse
 
@@ -122,7 +123,7 @@ There's a park here and a shrine in the middle of the lake. Has an Andersen bake
 |JR Rail Pass| Can only be purchased outside of Japan. May not be worth it unless you know you'll be using the shinkansen nearly everyday. JR trains aren't all shinkansen even though they travel long distance|
 |Bakery chain| Lots of bakery chain but Andersen is still super good|
 |Conbini| Conbini's are your best friends - you can find all snacks, meals, and travel essentials there. Must purchase are egg sandos and fried chicken. The top three are 7-11, Lawson, and Family Mart but 7-11s are more popular with natives and have the best egg pudding|  
-|Handkerchief| Bring or buy a handkerchief (there's a lot of options from nearly all stores) since there's not always paper towels in bathrooms and the ~~hand dryers maybe disabled~~ (reversed as COVID protocols were halted in 2023) |  
+|Handkerchief| Bring or buy a handkerchief (there's a lot of options from nearly all stores) since there's not always paper towels in bathrooms and the ~~hand dryers may be disabled~~ (reversed as COVID protocols were halted in 2023) |  
 
 ### Tokyo Bingo
 
