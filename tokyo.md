@@ -41,7 +41,7 @@ Harajuku/Omoetesando are where latest shopping can be found. Harajuku is know fo
 
 Suggested route (recommend to do this on a Sunday)
 * Take the train to Harajuku Station
-* Have breakfast at either [bills](https://maps.app.goo.gl/xGdYAEtraVdLNt159) or [Happy Pancake Omoetesando](https://maps.app.goo.gl/M1zxipn48JsqBHR37) for some of the fluffy souffle pancakes
+* Have breakfast at either [bills](https://maps.app.goo.gl/xGdYAEtraVdLNt159) or [Happy Pancake Omoetesando](https://maps.app.goo.gl/M1zxipn48JsqBHR37) for fluffy souffle pancakes
 * Visit [B Side Label](https://goo.gl/maps/5WMPh5btPN1CmHdD7) - dedicated sticker shop for all levels
 * Explore small shops by B Side Label
 * Go to [Meiji Temple](https://goo.gl/maps/E2tfEugPdy7PwYLP6) - oldest temple with a huge torii gate. Side quest, visit the Empress's Garden inside the temple grounds
