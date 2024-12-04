@@ -25,6 +25,7 @@ Asakusa is also a much older area and has some of the old Japan feels.
 * [Pelican Cafe](https://maps.app.goo.gl/7QSQFEXJXokrXQDX9) for really good bread and breakfast (it's small though so you'll have to arrive before it opens)
 * [Kotobukiyu](https://maps.app.goo.gl/uNWzuUnU72xbePrw8) - public baths that's open early at 11am; are okay with foreigners
 * [Hotel Mystays Asakusabashi](https://maps.app.goo.gl/uTMeLFiXN1kmFwwD9) - have rooms with 4+ beds; basic hotel
+* [Tokyo Skytree](https://maps.app.goo.gl/tGxa9Pw4mZbuaQSB8) - technically the next town over
 
 
 ### Ginza
@@ -142,10 +143,11 @@ There's a park here and a shrine in the middle of the lake. Has an Andersen bake
 
 |B|I|N|G|O|
 |---|---|---|---|---|
-|Takoyaki|Crepe|Tokyo Tower|Sushi|Egg Pudding|
+|Takoyaki|Crepe|Any Observatory Deck|Sushi|Egg Pudding|
 |Meiji Temple|Soba|Senbei|Park or Garden|Egg sandwich|
 |Yakitori|Shabu Shabu|Free Museum|Omurice|Gashapon|
 |Crane game|Hachiko|Sensoji temple|Udon|Cake/Bakery|
 |Suntory drink|Tonkatsu|Okonomiyaki|Disneyland|Yakitori|
 
 * Japan has a lot of free museums that you can find just wandering around like the Currency Museum, the Postal Museum, and the Sumo Museum
+* I recommend going to Tokyo Tower which is in Roppongi or Skytree for observatory deck experience
