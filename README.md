@@ -6,6 +6,8 @@ Travel Guides
 Future guides
 * Aomori
   * Apple pie 
+* Beppu
+  * All the onsens 
 * Hakodate
   * Seafood 
 * Hakone
@@ -14,6 +16,9 @@ Future guides
   * Kobe in Kobe is peak experience 
 * Kyoto
   * I really don't recommend
+* Onomichi
+  * Picturesque town used in movies
+  * Temple walk  
 * Osaka
   * Food central 
 * Sapporo
